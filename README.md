@@ -18,7 +18,7 @@ Matching the exact text wording and assets (images/backgrounds) is not important
 ![Palette](https://user-images.githubusercontent.com/92159714/189494154-659ac404-3d5c-49a2-8920-3b67673b5e9d.jpeg)
 -----------------------------------------------------------------------------------------------------------------------------------------
 ## 🎥⏺️ Garden Zen 🎥⏺️
-![Finish work](https://user-images.githubusercontent.com/92159714/189494976-3527e6a2-e45b-4090-869a-6278be5fcbe1.gif)
+![Finish work](https://user-images.githubusercontent.com/92159714/189495179-52024d0f-2566-44e0-bfbb-30412a989af0.gif)
 -----------------------------------------------------------------------------------------------------------------------------------------
 ### <img src="http://37.media.tumblr.com/44d4fb34d7d9a0407c8fd5520e2c3123/tumblr_nago0vkGOD1tbhv9ro1_500.gif" width="40"> Good luck!
 
